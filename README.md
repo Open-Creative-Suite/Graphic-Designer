@@ -1,4 +1,4 @@
-# ![Gd (Custom)](https://github.com/user-attachments/assets/5ce3ec2e-ec1a-4e75-88ce-58c63fb16e47) Graphic Designer
+# ![Gd (Custom)](https://github.com/user-attachments/assets/c106183e-4b5c-45d4-a5f1-d23cfefd10b2) Graphic Designer
 
 **Graphic Designer** is part of **Open Creative Suite**—a free and open-source alternative to Adobe Creative Suite, designed for creative professionals.
 
