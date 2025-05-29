@@ -1,1 +1,1 @@
-# ![gd (Custom)](https://github.com/user-attachments/assets/3627e525-7724-4cdb-9721-c41b5dae2a05) Graphic Designer
+# ![Gd (Custom)](https://github.com/user-attachments/assets/5ce3ec2e-ec1a-4e75-88ce-58c63fb16e47) Graphic Designer
